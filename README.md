@@ -48,4 +48,6 @@ To benefit fully from Black Ops Market’s protections and innovations, always a
 
 Visit the verified Black Ops Market here: **http://blackopsaax7ieeljectvi3vn3a5m2wfssylcdqaswrvlbeptwzv5oid.onion**
 
-Update:  Thursday 18 September 2025 url is back up and accessible
+
+
+Update:  01 October url is alive
